@@ -1,1 +1,5 @@
 ![Uploading 3. Леопард.jpg…]()
+![2  Хаски](https://github.com/user-attachments/assets/262f2f1e-7af4-41a9-b1f9-f2b6686870fa)
+![8  Божья коровка](https://github.com/user-attachments/assets/a24348ac-5c5a-44d1-93a0-5e83ddd85c15)
+![5  Белый тигренок](https://github.com/user-attachments/assets/30d65631-8397-4b68-8c4d-68dbf81bb1fa)
+![1  Черный кот с рыбкой](https://github.com/user-attachments/assets/91c5e4f6-2fc3-4eb5-8411-b02f4ab76107)
